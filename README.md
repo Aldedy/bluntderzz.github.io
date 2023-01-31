@@ -1,1 +1,1 @@
-# bluntderz.github.cio
+# bluntderz.github.io
